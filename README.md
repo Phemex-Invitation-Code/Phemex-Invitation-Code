@@ -4,7 +4,7 @@
 </strong>, users can receive up to <strong>$8800 USDT in bonuses</strong> and a <strong>50% discount on trading fees</strong>. This guide will explain everything about the Phemex invitation code, how to claim rewards, and why Phemex is a top choice for crypto trading.</p>
 
 <h2>What is Phemex Invitation Code?</h2>
-<p>A <strong>Phemex Invitation Code</strong> is a special referral code that grants new users exclusive bonuses and discounts upon signing up. This system is designed to encourage users to join the platform while enjoying significant perks. Using the <strong>Phemex Invitation Code: HMXFT5</strong>, traders can maximize their earnings and minimize trading costs.</p>
+<p>A <strong>Phemex Invitation Code HMXFT5</strong> is a special referral code that grants new users exclusive bonuses and discounts upon signing up. This system is designed to encourage users to join the platform while enjoying significant perks. Using the <strong>Phemex Invitation Code: HMXFT5</strong>, traders can maximize their earnings and minimize trading costs.</p>
 
 <h2>Phemex Invitation Code Table</h2>
 <table border="1">
@@ -41,6 +41,8 @@
     <li><strong>Additional Perks</strong> – Access to VIP promotions, giveaways, and exclusive trading competitions.</li>
 </ul>
 
+<p>See more: <a href="https://github.com/Phemex-Invitation-Code/How-to-use-Phemex-invitation-code/" target="_blank" rel="noopener noreferrer">Use Phemex Invitation Code</a></p>
+
 <h2>How to Use the Phemex Invitation Code HMXFT5</h2>
 <ol>
     <li><strong>Visit the Phemex website</strong> – Go to the official Phemex homepage.</li>
@@ -50,6 +52,8 @@
     <li><strong>Deposit Funds</strong> – Fund your account to qualify for the bonuses.</li>
     <li><strong>Start Trading</strong> – Begin trading to activate rewards and fee discounts.</li>
 </ol>
+
+<p>See more: <a href="https://github.com/Phemex-Invitation-Code/Sign-Up-Bonus-2025/" target="_blank" rel="noopener noreferrer">Phemex Sign Up Bonus In 2025</a></p>
 
 <h2>Why Choose Phemex?</h2>
 <ul>
